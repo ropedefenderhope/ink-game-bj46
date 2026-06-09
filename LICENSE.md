@@ -1,4 +1,4 @@
-
+Experience ink game like never before with ink game exclusive Scripts, the #1 Script. Includes unlimited stamina and speed for unbeatable performance.
 
 
 
